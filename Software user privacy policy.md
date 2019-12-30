@@ -1,5 +1,14 @@
 # Software-user-privacy-policy
 
+Contact information:
+iOS program design & system consultation
+
+if you have any question, please contact me with no hesitate
+
+Email: Owcet210@gmail.com
+
+Thank you!
+
 Our privacy policy respects and protects the privacy of all users of the service. In order to provide you with more accurate and personalized services, the privacy policy will use and disclose your personal information in accordance with the provisions of this privacy policy. But our privacy policy will treat this information with a high degree of diligence and due diligence. Except as otherwise provided in this privacy policy, our privacy policy does not disclose or provide such information to third parties without your prior permission. This privacy policy will be updated from time to time. When you agree to the privacy policy service use agreement, you are deemed to have agreed to the privacy policy in its entirety. This privacy policy is an integral part of the company's privacy policy service use agreement.
 
 Scope of application:
