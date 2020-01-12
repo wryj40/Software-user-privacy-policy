@@ -8,7 +8,6 @@ Privacy Policy:
 
 Effective date: June 24, 2019
 
-Fly Starry Sky ("us", "us" or "our") operates the Fly Starry Sky mobile application (hereinafter referred to as the "Service").
 
 When you use our services, this page will inform you of our policies regarding the collection, use, and disclosure of personal data and your choices related to that data. Our Fly Starry Sky privacy policy was created with the help of PrivacyPolicies.com privacy policy generator.
 
