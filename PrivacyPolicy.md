@@ -1,10 +1,10 @@
-#Application information:
+Application information:
 If you encounter any problems, please contact us.
 App version :iOS 10 +
 Our email address is :rubenfernandez130@gmail.com
 
 
-#Privacy Policy
+Privacy Policy:
 
 Effective date: June 24, 2019
 
